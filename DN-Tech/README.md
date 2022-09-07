@@ -12,6 +12,8 @@ The main reason is to take it from other places.
 
 To keep my blogger site running.
 
+Download [**Latest Release**](https://github.com/DeV1LN1H4d/Software/blob/main/DN-Tech/DN-Tech_1.0.apk?raw=true)
+
 ##############################################################
 
 ```
