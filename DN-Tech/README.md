@@ -11,7 +11,7 @@ Most of the posts here are taken from other places.
 The main reason is to take it from other places.
 
 To keep my blogger site running.
-#####################################################
+######################################################################
 ```
 ©All Copyrights (Post/Audio/Photo/Video) belong To Their rightful Owner. if you author and distribute your copyright Infringement. Please Contact us, we will Immediately delete the material ( E-Mail: contactdevilnihad@gmail.com )
 ```
