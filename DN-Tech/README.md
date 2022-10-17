@@ -16,6 +16,3 @@ Download [**Latest Release**](https://github.com/DeV1LN1H4d/Software/blob/main/D
 
 ##############################################################
 
-```
-©All Copyrights (Post/Audio/Photo/Video) belong To Their rightful Owner. if you author and distribute your copyright Infringement. Please Contact us, we will Immediately delete the material ( E-Mail: contactdevilnihad@gmail.com )
-```
